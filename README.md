@@ -17,7 +17,7 @@
 
 ### 🙄 ᴅᴇᴍᴏ/ᴛᴇsᴛ ʙᴏᴛ
   
-  [sᴛʀɪɴɢ ʙᴏᴛ 🍑](https://t.me/) #UPDATE VERY SOON
+  [sᴛʀɪɴɢ ʙᴏᴛ 🍑](https://t.me/MAMBA_SESSION_GBOT) #UPDATE VERY SOON
 
 ```
 Atleast Give A Star and Fork The Repo 🖤
