@@ -32,10 +32,10 @@ Atleast Give A Star and Fork The Repo 🖤
 
 ### 🙄 Support/Channel/OWNER
   
-  [SUPPORT](https://t.me/TELE_WALI_FRIENDSHIP)
-  [CHANNEL](https://t.me/THE_THIRD_EYE_NETWORK)
-  [OWNER](https://t.me/MAMBA_RETURNS)
-  [OWNER'S 2ND ID](https://t.me/CREATIVITY_MAMBA)
+  [SUPPORT]⚜️(https://t.me/TELE_WALI_FRIENDSHIP)
+  [CHANNEL]⚜️(https://t.me/THE_THIRD_EYE_NETWORK)
+  [OWNER]⚜️(https://t.me/MAMBA_RETURNS)
+  [OWNER'S 2ND ID]⚜️(https://t.me/CREATIVITY_MAMBA)
 
 
 
